@@ -1,2 +1,0 @@
-# Portfoliogg
-수능
